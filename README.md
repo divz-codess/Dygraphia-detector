@@ -11,7 +11,7 @@ Dysgraphia is a learning disability and a neurological disorder that is characte
 - Poor spelling
 - Ungrammatical and disorganized writing
 - Avoidance of schoolwork
-- Low confidence and a negative self-image
+- Low confidence and having a negative self-image
   </div>
 
 ## Our Initiative:
